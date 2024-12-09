@@ -2,7 +2,7 @@
 - 👀 I’m interested in money
 - 🌱 I’m currently learning crypto
 - 💞️ I’m looking to collaborate on (https://t.me/Dominationns)
-- 📫 How to reach me - https://t.me/MoneyDomination
+- 📫 How to reach me - [https://t.me/MoneyDomination](https://t.me/Dominationns)
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
