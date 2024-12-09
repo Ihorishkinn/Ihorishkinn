@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Ihorishkinn
 - 👀 I’m interested in money
 - 🌱 I’m currently learning crypto
-- 💞️ I’m looking to collaborate on https://t.me/MoneyDomination
+- 💞️ I’m looking to collaborate on (https://t.me/Dominationns)
 - 📫 How to reach me - https://t.me/MoneyDomination
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
